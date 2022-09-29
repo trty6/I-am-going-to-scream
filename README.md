@@ -2,17 +2,17 @@
 <hr>
 
 ## Number 10 <br>
-<img src="
+<img src="https://upload.wikimedia.org/wikipedia/commons/4/45/L%C3%ADnea_2_CAMETRO.png?20150927195318" width="400">
 
-This is simply due to it being the only even prime number, and never a good thing. A two is never good, its never a good amount of anything.
+As some people say, second place is first loser. In this case, the second number is first loser, and that is why it is last. Additionally, its never a good amount of anything.
 
-Included in this but not limited to: Tests, friends, people trying to kill you, dogs (you need more), and pencils.
+(Included in this list of anything but not limited to: Tests, friends, people trying to kill you, dogs because you need at minimum 12, and pencils.)
 <hr>
 
 ## Number 9
 3
 
-Number 3 is on this list at the 9th spot due to it also being an inadequate amount of dogs to own. You need more.
+Number 3 is on this list at the 9th spot due to it also being an inadequate amount of dogs to own. You need more. More dogs. Also, it is half of the unluckiest number on this list.
 <hr>
 
 ## Number 8
