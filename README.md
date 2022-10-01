@@ -1,3 +1,5 @@
+[inspired by this video](https://www.youtube.com/watch?v=Ov2keRFKE4w)
+
 # Top ten numbers from ONE TO TEN
 <hr>
 
@@ -23,4 +25,20 @@ Coming in at 8th place, we have number 6! This number is an extremely cool numbe
 ## Number 7
 <img src="https://upload.wikimedia.org/wikipedia/commons/a/a3/Montpellier_t_10.png?20120616082222" width="400">
 
-At 
+At number 7 is the number 10. Unfortunately for ten, it didn't do so well since its not a 10 out of 10. So while 10 is literally 10, 10 is not 10 of 10 because 10 is simply 10.
+
+## Number 6
+<img src="https://user-images.githubusercontent.com/114519093/193431491-fca9138b-ae1e-475f-8d2f-aaa1863d3f83.png" width="400">
+
+At the 6th position, is the number 4! Four is here for four poor reason, for four, when brought forth before four people, was arrested for violating international law. It was cool looking though, so thats why they are in 6th. They should probably be in prison though.
+
+## Number 5
+<img src="https://upload.wikimedia.org/wikipedia/commons/b/b4/Montpellier_t_8.png?20120616150508" width="400">
+
+At number 5 is number 8, which is not to be confused with the number in position 8, number 6. While number 6 may appear like number 8, 8 and 6 are not the same, and if you switched all 8's with 6's there would be a much more confusing list of best 10 numbers in the first 10 numbers, since 9 would not be ate by 7, but 8 might be ate by 6 or 9.
+
+## Number 4
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/87/L%C3%ADnea_5_CAMETRO.png/600px-L%C3%ADnea_5_CAMETRO.png?20171213124509" width=400>
+
+At number 4 is number 5, which is just behind number 3 on the list, but its still be4 5. 5 kinda sucks tho...
+
