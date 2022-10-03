@@ -42,3 +42,7 @@ At number 5 is number 8, which is not to be confused with the number in position
 
 At number 4 is number 5, which is just behind number 3 on the list, but its still be4 5. 5 kinda sucks tho...
 
+## Number 3
+<img src="https://upload.wikimedia.org/wikipedia/commons/d/dc/Montpellier_t_9.png?20120616150508" width=400>
+
+Number 9 takes the number 3 spot due to 
