@@ -45,4 +45,14 @@ At number 4 is number 5, which is just behind number 3 on the list, but its stil
 ## Number 3
 <img src="https://upload.wikimedia.org/wikipedia/commons/d/dc/Montpellier_t_9.png?20120616150508" width=400>
 
-Number 9 takes the number 3 spot due to 
+Number 9 takes the number 3 spot due to its general well-roundedness. Its very close to 10, which makes it a good rating to get, yet its also divisible by 3, which makes groups of 9 very good for activities. Additionally, it is the last number before the double digits.
+
+## Number 2
+<img src="https://upload.wikimedia.org/wikipedia/commons/9/94/L%C3%ADnea_1_CAMETRO.png?20150927195318" width=400>
+
+At number 2 is the number 1 number from numbers 1-10. Unfortunately, it was not able to take its own spot on this list, but it made it close just off the fact that it is number 1. It's okay 1, you'll always be first in our hearts.
+
+## Number 1
+<img src="https://upload.wikimedia.org/wikipedia/commons/2/29/Montpellier_t_7.png?20120616143653" width=600>
+
+At our number 1 spot, is number 7! Number 7 takes first place as the dominant number! Its strong, ferocious, and lucky! However, it is also most likely going to prison after this, due to charges for assault and cannibalism against number 9. Anyways, hope you enjoyed the show, and good night!
